@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Blackphenixlord
 - 👀 I’m interested in VOLLYBALL
 - 🌱 I’m currently learning CODEING 
-- 💞️ I’m looking to collaborate on WORK
 - ⚡ Fun fact: I AM NOT GAY
 
 <!---
